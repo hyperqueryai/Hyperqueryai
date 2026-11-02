@@ -26,5 +26,5 @@
 ---
 
 ### 📬 Contact & Engagements
-* **Inquiries & Contracts:** [Your Email Address]
+* **Inquiries & Contracts:** [abhinav.vashith.1008@gmail.com]
 * **LinkedIn:** [Your LinkedIn Profile URL]
